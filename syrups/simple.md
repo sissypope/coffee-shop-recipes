@@ -6,6 +6,7 @@
 
 - 1 cup sugar
 - 1 cup water
+- 1 cup of nothing else matters
 
 ## How to Make
 
